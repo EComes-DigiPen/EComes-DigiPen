@@ -1,1 +1,1 @@
-# There's nothing to see here. Please leave.
+# There's nothing here for you to see. Please leave.
