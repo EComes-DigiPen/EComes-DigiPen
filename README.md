@@ -1,1 +1,2 @@
-# There's nothing here for you to see. Please leave.
+# There is literally nothing here. Please go away.
+Don't snoop.
